@@ -34,6 +34,7 @@
 - [肖战当前粉丝价值与风险量化评估报告2](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-2.jpg)
 - [肖战当前粉丝价值与风险量化评估报告3](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-3.jpg)
 
+其他关联事件：
 [肖战粉丝举报AO3事件整理](https://github.com/Feb27HistoryMoment/XiaoZhanGate)
 
 时间轴：
