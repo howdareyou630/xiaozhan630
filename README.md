@@ -15,8 +15,9 @@
 - [在lofter平台教唆他人自杀](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%9C%A8lofter%E5%B9%B3%E5%8F%B0%E6%95%99%E5%94%86%E4%BB%96%E4%BA%BA%E8%87%AA%E6%9D%80.jpg)
 - [长期网暴、造谣汪海林](https://m.weibo.cn/status/4518954184332299?)
 - [网暴 艾琳_埃德勒](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%BD%91%E6%9A%B4%E8%89%BE%E7%90%B3_%E5%9F%83%E5%BE%B7%E5%8B%92.jpg)
+- 威胁 亚非文学bot [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%9A%E9%9D%9E%E6%96%87%E5%AD%A6bot%E5%81%9C%E6%9B%B4_1.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%9A%E9%9D%9E%E6%96%87%E5%AD%A6bot%E5%81%9C%E6%9B%B4_2.jpg)
+- 网暴 林品 [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E6%9E%97%E5%93%81%E8%80%81%E5%B8%88%E8%A2%AB%E7%BD%91%E6%9A%B4_2.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E6%9E%97%E5%93%81%E8%80%81%E5%B8%88%E8%A2%AB%E7%BD%91%E6%9A%B4_%E4%B8%BE%E4%BE%8B_9.jpg)
 
-人肉搜索档案
 =========================
 - [无边桃炎遭人肉搜索](https://weibo.com/1820542391/J99gRwcTc)  [链接2](https://weibo.com/5890244777/J99OQBvFD)
 
