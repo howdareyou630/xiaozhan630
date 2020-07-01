@@ -17,8 +17,7 @@
 
 人肉搜索档案
 =========================
-[边桃炎遭人肉搜索](https://weibo.com/1820542391/J99gRwcTc)
-  [链接1](https://weibo.com/1820542391/J99gRwcTc) [链接2](https://weibo.com/5890244777/J99OQBvFD)
+[边桃炎遭人肉搜索](https://weibo.com/1820542391/J99gRwcTc)  [链接2](https://weibo.com/5890244777/J99OQBvFD)
 
 
 其他档案
