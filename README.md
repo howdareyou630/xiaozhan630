@@ -14,6 +14,7 @@
 =========================
 - [在lofter平台教唆他人自杀](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%9C%A8lofter%E5%B9%B3%E5%8F%B0%E6%95%99%E5%94%86%E4%BB%96%E4%BA%BA%E8%87%AA%E6%9D%80.jpg)
 - [长期网暴、造谣汪海林](https://m.weibo.cn/status/4518954184332299?)
+- [网暴 艾琳_埃德勒](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%BD%91%E6%9A%B4%E8%89%BE%E7%90%B3_%E5%9F%83%E5%BE%B7%E5%8B%92.jpg)
 
 人肉搜索档案
 =========================
