@@ -24,11 +24,6 @@
 =========================
 - 人肉 威胁 无边桃炎 [链接1](https://weibo.com/1820542391/J99gRwcTc) 、[链接2](https://weibo.com/5890244777/J99OQBvFD)、[链接3](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E6%97%A0%E8%BE%B9%E6%A1%83%E7%82%8E%E9%81%AD%E4%BA%BA%E8%82%89%E6%90%9C%E7%B4%A2_3.jpg)、[链接4：威胁](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E6%97%A0%E8%BE%B9%E6%A1%83%E7%82%8E%E9%81%AD%E4%BA%BA%E8%82%89%E6%90%9C%E7%B4%A2_4.jpg)
 
-其他档案
-=========================
-- [肖战粉丝举报AO3事件整理](https://github.com/Feb27HistoryMoment/XiaoZhanGate)
-
-
 
 拓展阅读
 =========================
@@ -38,6 +33,8 @@
 - [肖战当前粉丝价值与风险量化评估报告1](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-1.jpg)
 - [肖战当前粉丝价值与风险量化评估报告2](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-2.jpg)
 - [肖战当前粉丝价值与风险量化评估报告3](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-3.jpg)
+
+[肖战粉丝举报AO3事件整理](https://github.com/Feb27HistoryMoment/XiaoZhanGate)
 
 时间轴：
 - [2020.04.27 - 2020.05.16](https://s1.ax1x.com/2020/05/16/YgEpwR.png)
