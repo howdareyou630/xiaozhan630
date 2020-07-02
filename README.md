@@ -6,7 +6,7 @@
 
 参与收录须知
 =========================
-[![Join the chat at https://gitter.im/memcloud/Lobby](https://badges.gitter.im/memcloud/Lobby.svg)](https://gitter.im/howdareyou630/community)
+[![Join the chat at https://gitter.im/howdareyou630/community](https://badges.gitter.im/memcloud/Lobby.svg)](https://gitter.im/howdareyou630/community)
 - 所收录的数据应保持客观，非单方面情绪陈述。
 - 将事件网页截图并规范命名：`事件受害人_相关事件_第几页`
 - 若事件原发链接未失效的情况也请一并收录
