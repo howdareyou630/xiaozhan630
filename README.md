@@ -23,6 +23,7 @@
 - 伪装咨询获取他人联络信息然后进行辱骂攻击 [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%BA%E8%82%89%E8%BE%B1%E9%AA%82%E7%B4%A0%E4%BA%BA_2.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%BA%E8%82%89%E8%BE%B1%E9%AA%82%E7%B4%A0%E4%BA%BA_3.jpg)、[链接3](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%BA%E8%82%89%E8%BE%B1%E9%AA%82%E7%B4%A0%E4%BA%BA_4.jpg)、[链接4](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%BA%E8%82%89%E8%BE%B1%E9%AA%82%E7%B4%A0%E4%BA%BA_5.jpg)、[链接5](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%BA%BA%E8%82%89%E8%BE%B1%E9%AA%82%E7%B4%A0%E4%BA%BA_1.jpg)
 - [威胁 PortiaJX](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%A8%81%E8%83%81PortiaJX.jpg)
 - 咒骂 丹东平安振兴 [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%B8%B9%E4%B8%9C%E5%B9%B3%E5%AE%89%E6%8C%AF%E5%85%B4_%E8%BE%B1%E9%AA%82_2.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E4%B8%B9%E4%B8%9C%E5%B9%B3%E5%AE%89%E6%8C%AF%E5%85%B4_%E8%BE%B1%E9%AA%82_3.jpg)
+- 辱骂 R卡卡-26 及其亲友 [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%99%BD%E7%A5%A8%E7%BE%8E%E5%B7%A5%E5%AD%97%E4%BD%93%E5%B9%B6%E8%BE%B1%E9%AA%82%E7%BE%8E%E5%B7%A5%E5%8F%8A%E5%85%B6%E4%BA%B2%E5%8F%8B_1.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%99%BD%E7%A5%A8%E7%BE%8E%E5%B7%A5%E5%AD%97%E4%BD%93%E5%B9%B6%E8%BE%B1%E9%AA%82%E7%BE%8E%E5%B7%A5%E5%8F%8A%E5%85%B6%E4%BA%B2%E5%8F%8B_8.jpg)、[链接3](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%99%BD%E7%A5%A8%E7%BE%8E%E5%B7%A5%E5%AD%97%E4%BD%93%E5%B9%B6%E8%BE%B1%E9%AA%82%E7%BE%8E%E5%B7%A5%E5%8F%8A%E5%85%B6%E4%BA%B2%E5%8F%8B_9.jpg)、[链接4](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E7%99%BD%E7%A5%A8%E7%BE%8E%E5%B7%A5%E5%AD%97%E4%BD%93%E5%B9%B6%E8%BE%B1%E9%AA%82%E7%BE%8E%E5%B7%A5%E5%8F%8A%E5%85%B6%E4%BA%B2%E5%8F%8B_10.jpg)
 
 人肉搜索档案
 =========================
@@ -46,6 +47,13 @@
 - 肖战粉丝冒充一线医护人员为肖战应援事件 [链接1](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_1.jpg)、[链接2](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_2.jpg)、[链接3](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_4.jpg)、[链接4](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_5.jpg)、[链接5](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_6.jpg)、[链接6](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_8.jpg)、[链接7](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_9.jpg)、[链接8](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_10.jpg)、[链接9](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_12.jpg)、[链接10：总结](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E5%86%92%E5%85%85%E4%B8%80%E7%BA%BF%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98_13.jpg)
 - [疑似利用平台入侵并操作用户账号进行违背用户个人意愿的行为](https://weibo.com/5366907963/J9o2IovUf)
 
-时间轴：
-- [2020.04.27 - 2020.05.16](https://s1.ax1x.com/2020/05/16/YgEpwR.png)
+趣闻&读物：
+- [主流媒体及党媒点评批评](https://github.com/howdareyou630/xiaozhan630/blob/master/proof_file/%E8%A2%AB%E4%B8%BB%E6%B5%81%E5%AA%92%E4%BD%93%E7%82%B9%E5%90%8D.jpg)
+- 最高人民检察院的《检察日报》不懂法 [链接1](http://zjnews.china.com.cn/yuanchuan/2020-03-12/216341.html)、[链接2](https://weibo.com/3183107112/Iy55cvFi3)、[链接3](https://weibo.com/3183107112/Iy6lAs66h)
+- [从“肖战事件”说开去——浅谈“邪教式追星”](https://weibo.com/ttarticle/p/show?id=2309404520473747653007)
+- [从亚非文学bot到无边桃炎——“粉圈文字狱”何时休？](https://weibo.com/ttarticle/p/show?id=2309404522151985414194)
+- [肖战粉丝发文十问“检察日报”，质疑最高检不懂法，找国务院说理](https://3g.163.com/air/article_cambrian/F7KRRU700546C80B.html)
 
+时间轴
+=========================
+- [2020.04.27 - 2020.05.16](https://s1.ax1x.com/2020/05/16/YgEpwR.png)
