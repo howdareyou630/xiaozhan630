@@ -41,6 +41,7 @@
 - [肖战当前粉丝价值与风险量化评估报告1](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-1.jpg)
 - [肖战当前粉丝价值与风险量化评估报告2](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-2.jpg)
 - [肖战当前粉丝价值与风险量化评估报告3](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BD%93%E5%89%8D%E7%B2%89%E4%B8%9D%E4%BB%B7%E5%80%BC%E4%B8%8E%E9%A3%8E%E9%99%A9%E9%87%8F%E5%8C%96%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A1-3.jpg)
+- 2020年7月5日 新浪微博疑似用'莫须有'封锁抗议肖战人群的账号 [官方公告](https://www.weibo.com/1934183965/J9Nk9jbU0)、[人员列表](https://weibo.com/6597718943/J9Nn1oWSs)
 
 其他关联事件：
 - 2020/6/30 维权捏造事件总览 [链接1](https://weibo.com/1804471041/J98zyFpce)
