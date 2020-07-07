@@ -58,6 +58,7 @@
 - [从亚非文学bot到无边桃炎——“粉圈文字狱”何时休？](https://weibo.com/ttarticle/p/show?id=2309404522151985414194)
 - [肖战粉丝发文十问“检察日报”，质疑最高检不懂法，找国务院说理](https://3g.163.com/air/article_cambrian/F7KRRU700546C80B.html)
 - China’s devoted, combative celebrity fan clubs [链接1](https://weibo.com/5818954792/J9E96mOjp)、[链接2：The Economist](https://www.economist.com/china/2020/07/04/chinas-devoted-combative-celebrity-fan-clubs)
+- 肖战异常数据分析 [链接1：在线播放](https://weibo.com/tv/show/1034:4523750360547357?from=old_pc_videoshow)、[链接2:视频文件](https://github.com/howdareyou630/xiaozhan630/blob/master/extra_read/%E8%82%96%E6%88%98%E5%BC%82%E5%B8%B8%E6%95%B0%E6%8D%AE%E5%88%86%E6%9E%90.mp4)
 
 时间轴
 =========================
